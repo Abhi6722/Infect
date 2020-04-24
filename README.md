@@ -84,30 +84,29 @@ __Exit__ :
 ## ?? ***Check this***
 
 ### Subscribe our channel on youtube:
-https://www.youtube.com/noobhackers
+https://www.youtube.com/channel/UCV9qe5io3OCZ8vHMu4gnQZQ
 
 ### Chekout our webite:
-https://www.noob-hackers.com
+https://www.hackershub.abhi6722.in
+
 
 ## ?? ***Join***
 
-### Facebook group: 
-https://www.facebook.com/groups/1936478173310085
 
 ### Telegram channel:
-https://t.me/noobhack
+https://t.me/officialhackershub
 
 ### Facebook page:
-https://www.facebook.com/Noob-Hackers-250938565573643
+https://m.facebook.com/Hackers-Hub-103249834703018/?ref=bookmarks
 
 ### Instagram: 
-https://www.instagram.com/noobhackers352
+https://www.instagram.com/official_hackershub
 
 ### Pinterest:
-https://in.pinterest.com/noobhackers
+https://in.pinterest.com/Abhi6722
 
 ### My GitHub ID link:
-https://www.github.com/noob-hackers
+https://www.github.com/Abhi6722
 
 ### ?? Warning
 
